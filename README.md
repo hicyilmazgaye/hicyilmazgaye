@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hicyilmazgaye
-- 🌱 I’m currently learning ,Developing myself in the field of social media expertise and cyber security
+- 🌱 I’m currently learning ,I am learning java. I want to improve myself in social media expertise and cyber security
 - 💞️ I’m looking to collaborate on as a social media expert
 - 📫 How to reach me
 - telegram : @gayezeynep
